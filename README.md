@@ -1,1 +1,0 @@
-# artdarek.github.io
